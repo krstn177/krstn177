@@ -37,4 +37,4 @@
 
 ## 📫 How to reach me
 - Email: christiangeshev@gmail.com
-- LinkedIn: [Your LinkedIn Profile](https://linkedin.com/in/your-linkedin)
+- LinkedIn: [Kristiyan Geshev](https://www.linkedin.com/in/kristiyan-geshev/)
